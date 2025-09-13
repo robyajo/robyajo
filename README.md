@@ -4,6 +4,8 @@
 
 # 💫 About Me:
 
+# From Indonesia
+
 ## Hello World! I'm Roby Karti S 👋
 
 ## 🌐 Socials:
