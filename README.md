@@ -4,7 +4,7 @@
 
 # 💫 About Me:
 
-# From Indonesia
+# From Indonesia, Pekanbaru City
 
 ## Hello World! I'm Roby Karti S 👋
 
